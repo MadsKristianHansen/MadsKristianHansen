@@ -1,4 +1,4 @@
-### About me
+### About me :black_circle:
 
 
 I am a reposeful, disciplined ascetic, interested in optimal health and continuous self development.<br>
